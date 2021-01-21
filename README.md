@@ -1,1 +1,1 @@
-# CV
+https://atnawshin.github.io/CV/
